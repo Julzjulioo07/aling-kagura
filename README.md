@@ -1,2 +1,0 @@
-# aling-kagura
-aling kagura
